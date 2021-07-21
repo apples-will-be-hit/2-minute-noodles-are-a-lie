@@ -1,0 +1,3 @@
+Recipie For Maggie
+Maggi is an international brand of seasonings, instant soups, and noodles that originated in Switzerland in the late 19th century. The Maggi company was acquired by Nestlé in 1947.
+Pour a glass of water in a pan. Add the tastemaker once the water starts to boil. Add the noodles. You can break them, or not, its ur maggie, so make it the way you want to. You can add vegetables accordingly, but honestly speaking, maggie is the best without veggies. You can take out you noodles, once the water has boiled enough. And you're done! Enjoy your maggie!s
